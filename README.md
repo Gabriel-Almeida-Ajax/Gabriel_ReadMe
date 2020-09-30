@@ -1,4 +1,4 @@
-### Olá, bom estudos!
+### Olá! tudo bem? espero que esteja.
 
 ![Homem Letra](http://infeduc.pbworks.com/f/Gif%20homem%20letrado.gif)
 
